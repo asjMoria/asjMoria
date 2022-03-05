@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @asjMoria
 - 👀 I’m interested in computer games and things.
-- 🌱 I’m currently learning how to make coputer do things.
+- 🌱 I’m currently learning how to make computer do things.
 - 💞️ I’m looking to collaborate on stuff and things.
 - 📫 How to reach me: On the interwebs and things.
 
